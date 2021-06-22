@@ -1,1 +1,1 @@
-Inofrmation
+Information
